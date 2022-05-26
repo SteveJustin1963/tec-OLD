@@ -9,6 +9,12 @@ replace each part of tec1 from older tech
 ![images](https://user-images.githubusercontent.com/58069246/170417796-d5e98c3a-434c-4ade-9c15-421c3363d6ab.jpg)
 ![images](https://user-images.githubusercontent.com/58069246/170418854-f75f1f75-2dae-4268-a76a-5ec90e3ec268.jpg)
  
+### Hellschreiber printer - make the head move left and right as paper feed
+![download](https://user-images.githubusercontent.com/58069246/170423422-780a1d91-164c-4a92-9e95-a061c85f4560.jpg)
+![download](https://user-images.githubusercontent.com/58069246/170423429-4f6dbf43-e4e1-408d-86fb-9d1ebb3502ab.jpg)
+![download](https://user-images.githubusercontent.com/58069246/170423443-1d2704f4-3a50-427e-a7ac-9a4f2ffe2489.jpg)
+![download](https://user-images.githubusercontent.com/58069246/170423453-cc7722a9-cec9-4fb2-9221-4ee452c6f44f.png)
+![images](https://user-images.githubusercontent.com/58069246/170423464-89a85905-462c-40bb-a5fc-d1399e1f7a53.jpg)
 
 
 
