@@ -4,9 +4,13 @@ replace each part of tec1 from older tech
 
 - https://drive.mindmup.com/map/1MF10BRh8oYv8gtqrB8KeJLwqlO_ElPe6
 
-### relays
+### relays logic /cpu
 
 ![images](https://user-images.githubusercontent.com/58069246/170417796-d5e98c3a-434c-4ade-9c15-421c3363d6ab.jpg)
+![images](https://user-images.githubusercontent.com/58069246/170418854-f75f1f75-2dae-4268-a76a-5ec90e3ec268.jpg)
+![images](https://user-images.githubusercontent.com/58069246/170418886-43db2c19-28ba-4ae5-a764-0690e3d42c14.jpg)
+
+
 
 
 ### transformer
