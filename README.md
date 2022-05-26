@@ -61,7 +61,30 @@ vintage zenith tv
 ![SteampunkTendencies_Steampunk_Set_KeyboardFeat](https://user-images.githubusercontent.com/58069246/170421076-c43372f0-f3fc-4cf3-b6b0-5b929645eea6.jpg)
 ![steampunk_computer_by_steamworker_d72dxit-fullview](https://user-images.githubusercontent.com/58069246/170421104-8bfad2e7-72cb-49a1-8ee4-a11336806e63.jpg)
 ![SteampunkTendencies_Steampunk_Set_Keyboard_03](https://user-images.githubusercontent.com/58069246/170421324-55dd41f4-0be6-4a1c-8443-d43a4f6f0449.jpg)
-![download](https://user-images.githubusercontent.com/58069246/170421474-e552a2c0-aa82-46d4-8b74-2fba7602f533.jpg)
+![f15686fc1c0ce6be19ba69c4dd88db47](https://user-images.githubusercontent.com/58069246/170421670-e71a9b10-55fd-4561-8f2e-f530f3dddb38.jpg)
+![STEAMPUNK-RADIO-LOOKS-THE-BUSINESS](https://user-images.githubusercontent.com/58069246/170421693-3d165009-37db-48cf-a126-0888f208e5dc.jpg)
+
+
+### Discrete parts
+![download](https://user-images.githubusercontent.com/58069246/170421913-3e977459-906b-43aa-b3dc-8cbd65621753.jpg)
+![download](https://user-images.githubusercontent.com/58069246/170421936-c83a2788-39e8-4439-b902-747209edaf35.jpg)
+![download](https://user-images.githubusercontent.com/58069246/170421948-3664064f-821b-46b4-a815-e69ecd216c51.jpg)
+![images](https://user-images.githubusercontent.com/58069246/170421981-1ab5a4dc-59bf-4079-81e0-6060a21e6f3a.jpg)
+![images](https://user-images.githubusercontent.com/58069246/170422012-3681153e-d126-46b9-a0f3-97860e7093cd.jpg)
+![images](https://user-images.githubusercontent.com/58069246/170422041-fd817aa7-f0b4-4826-acb1-63f589729363.jpg)
+![download](https://user-images.githubusercontent.com/58069246/170422096-23eaa15e-2ed0-4c20-943b-d2e92225cfec.jpg)
+![download](https://user-images.githubusercontent.com/58069246/170422181-d66bcf64-cb4a-4c44-af23-8b38c2367a4c.jpg)
+![download](https://user-images.githubusercontent.com/58069246/170422200-a76cbbfc-1444-4c99-8098-da0a84cfbe4a.jpg)
+
+### Dead Bug
+![download](https://user-images.githubusercontent.com/58069246/170422254-30f489c0-f14e-4043-b50e-b20afaebb5c2.jpg)
+![images](https://user-images.githubusercontent.com/58069246/170422435-2fb052ce-6d3e-4784-903e-3ea19310d6b6.jpg)
+![images](https://user-images.githubusercontent.com/58069246/170422453-d8ca00e6-37eb-44f2-9e66-6847045242ac.jpg)
+![download](https://user-images.githubusercontent.com/58069246/170422500-049cab78-4a7f-4c55-b901-4aa46d74d374.jpg)
+![download](https://user-images.githubusercontent.com/58069246/170422524-55d440ff-9227-43be-8460-1eba8bf7e013.jpg)
+![images](https://user-images.githubusercontent.com/58069246/170422677-1b093e65-7b99-4e81-981f-d39669396a34.jpg)
+![images](https://user-images.githubusercontent.com/58069246/170422702-32d9fe12-388b-42f7-b810-dc09afcf4fc5.jpg)
+![images](https://user-images.githubusercontent.com/58069246/170422717-1d466010-fe7c-400a-bb4d-fe0293b7a985.jpg)
 
 
 
