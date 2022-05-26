@@ -1,6 +1,8 @@
 # tec-OLD
 replace each part of tec1 from older tech
 
+![image](https://user-images.githubusercontent.com/58069246/170426251-8de4aa64-1378-4f3d-a033-e218f746d365.png)
+
 
 - https://drive.mindmup.com/map/1MF10BRh8oYv8gtqrB8KeJLwqlO_ElPe6
 
