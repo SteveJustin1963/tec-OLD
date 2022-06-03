@@ -49,7 +49,7 @@
 ![download](https://user-images.githubusercontent.com/58069246/170418231-77fb57dc-6214-4748-a7f4-a6b6cc997cab.jpg)
 ![hb106sm](https://user-images.githubusercontent.com/58069246/170419912-dfa8f52e-3381-4e41-b4d9-1619ec47bd96.jpg)
 ![9ct06sm](https://user-images.githubusercontent.com/58069246/170419927-db30cd7b-bc43-488a-a51c-b8529251ff4d.jpg)
-![iv21sm](https://user-images.githubusercontent.com/58069246/170419941-d13b43fc-18e4-4494-9404-3607982db2fa.jpg)
+
 
 ### old CRT
 ![download](https://user-images.githubusercontent.com/58069246/170420158-23060537-ecba-4910-b216-b949b9cf34b9.jpg)
