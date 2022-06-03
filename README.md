@@ -1,6 +1,16 @@
 # tec-OLD
 replace each part of tec1 from older tech
 
+build tec-1 from pre period tech "restrospective tech" and make those parts again from pre period.
+ 
+
+iterate thru each years sci and ee innovations
+
+iterate prospective future tech, guess/extrapolate future tech and proto into tec-1, eg quantum, qubit, as poor-bit, organic, dna, etc 
+
+![](https://github.com/SteveJustin1963/tec-RETRO/blob/master/pics/Doc%2024%20May%202020%2C%2014_21-page-001.jpg)
+
+
 ![image](https://user-images.githubusercontent.com/58069246/170426251-8de4aa64-1378-4f3d-a033-e218f746d365.png)
 
 
