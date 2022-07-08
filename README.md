@@ -21,6 +21,11 @@
 ![images](https://user-images.githubusercontent.com/58069246/170423464-89a85905-462c-40bb-a5fc-d1399e1f7a53.jpg)
 
 
+### Magnetic amplifier
+![download](https://user-images.githubusercontent.com/58069246/178001804-78543124-1e1d-46c5-b093-2c86a2bae59a.png)
+![download](https://user-images.githubusercontent.com/58069246/178001875-b8863734-bbbe-4266-a1d5-8ba1367dcb3d.png)
+![download](https://user-images.githubusercontent.com/58069246/178001886-7206ba64-500b-430f-bac9-55415704a9ae.png)
+
 
 
 ### Transformer
